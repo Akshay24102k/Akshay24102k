@@ -1,5 +1,5 @@
 - 👋 Hi, I’m K Akshay
-- 👀 I’m interested in Gaming and programing
+- 👀 I’m interested in Gaming and programming
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Linkedin  www.linkedin.com/in/akshay-k-7b7982279
